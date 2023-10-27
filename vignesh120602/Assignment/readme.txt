@@ -1,3 +1,4 @@
+Brand name :JD watches
 Linked in URL: https://www.linkedin.com/in/vigneshd12
 Facebook page URL: https://www.facebook.com/JDWatches23
 Blogger website: https://www.blogger.com/blog/posts/7298558562803954601
