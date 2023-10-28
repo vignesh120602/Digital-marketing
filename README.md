@@ -1,4 +1,3 @@
-# Digital-marketing
 Brand name:Spade men's wear
 Category:clothing
 Target Audience:Men
